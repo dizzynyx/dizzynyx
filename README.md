@@ -15,4 +15,6 @@ ${\textsf{\color{#f594c1}does anyone know where I can fuck up some potions thoug
 
 <img src="https://i.postimg.cc/tJ06qV1d/xn8nlb.png">
 
+i block anonfillies/ponies on sight you 4chaners disgust me
+<br>i overuse the block button as god intended
 
