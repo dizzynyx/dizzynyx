@@ -17,4 +17,6 @@ ${\textsf{\color{#f594c1}does anyone know where I can fuck up some potions thoug
 
 i block anonfillies/ponies on sight you 4chaners disgust me
 <br>i overuse the block button as god intended
+<br>
+if you have proof against craftyforce or any of his friends pls hmu my discord is dizzynyx
 
