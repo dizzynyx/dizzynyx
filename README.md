@@ -1,5 +1,7 @@
 <div align="center">
 
+ATTACK ME ! https://artfight.net/~DIZZYNYX
+
 <img src="https://i.postimg.cc/zDWhD1Gp/image_2024_05_24_123924313.png">
 
 ${\textsf{\color{#f594c1}Thank you, thank you,}}$
