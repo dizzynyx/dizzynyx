@@ -22,3 +22,5 @@ i block anonfillies/ponies on sight you 4chaners disgust me
 <br>
 if you have proof against craftyforce or any of his friends pls hmu my discord is dizzynyx
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31aqbmgnz4dfmmhawdn3ps5vmuhi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=fe86e4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
