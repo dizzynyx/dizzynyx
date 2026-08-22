@@ -14,6 +14,6 @@
 </div>
 <br> <img src="https://files.catbox.moe/1hkrpi.gif" width="410px">
 
- ⠀ ⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31aqbmgnz4dfmmhawdn3ps5vmuhi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=fe86e4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ ⠀ ⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31aqbmgnz4dfmmhawdn3ps5vmuhi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=8a8b92&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <img src="https://files.catbox.moe/am2tyu.png" align="center" width="410px">
