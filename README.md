@@ -1,7 +1,7 @@
 <img src="https://files.catbox.moe/0z3da4.png" align="center" width="410px">
 <img src="https://file.garden/anT5CiBp4ST7FLui/frank" align="left" width="150px">
-    HE / THEY⠀ ⠀  ⠀   ⠀  ⸝⸝⸝⸝ ⠀⠀      ⠀⠀ 7TEEN
-<br>ask 4 name⠀ ⠀ ⠀ ⠀⸝⸝⸝⸝ ⠀     ⠀ ⠀⠀  system
+    HE / THEY⠀ ⠀   . ⠀    ⠀  ⸝⸝⸝⸝ ⠀⠀   .      ⠀⠀ 7TEEN
+<br>ask 4 name⠀ ⠀. ⠀ ⠀⸝⸝⸝⸝ ⠀     .⠀ ⠀⠀  system
 <img src="https://64.media.tumblr.com/4e9149f113b15158da771dc5007ef755/58f7aab5fef60ba9-09/s400x600/4ea682be9a73f4f7715579bd9409ce28a937ce1e.pnj" width="240px"> Do not call me nyx if you know me 
 <br>from pt.
 <br>
